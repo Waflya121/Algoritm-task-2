@@ -1,1 +1,0 @@
-# Algoritm-task-2
